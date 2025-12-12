@@ -5,7 +5,7 @@
 📍 USA  
 📞 +1 (916) 857-4699  
 📧 [anitha@mywebemails.com](mailto:anitha@mywebemails.com)  
-🔗 [LinkedIn](#) <!-- Replace # with your actual LinkedIn URL -->
+🔗 [linkedin.com/in/anithatakkellapati](#) <!-- Replace # with your actual LinkedIn URL -->
 
 ---
 
